@@ -5,9 +5,9 @@ The Idea is from some 9Gag post and lucienperouze wanted to start it, but it doe
 
 Let's do it all toghether!
 
-Naming Ideas welcome!!!
-Thanks @caramelle210 for "CineMatch"
-Thanks @Tiggeryumyum for "BingeBuddy"
+Naming Ideas welcome!!!  
+Thanks @caramelle210 for "CineMatch"  
+Thanks @Tiggeryumyum for "BingeBuddy"  
 
 ### idea
 Swipe on movies.  
