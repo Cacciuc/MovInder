@@ -8,6 +8,7 @@ Let's do it all toghether!
 Naming Ideas welcome!!!  
 Thanks @caramelle210 for "CineMatch"  
 Thanks @Tiggeryumyum for "BingeBuddy"  
+Thanks `anonymous`for MatchFlix  
 ### Naming Poll
 https://forms.gle/CBS9iyZdSPW4z1hn7
 
